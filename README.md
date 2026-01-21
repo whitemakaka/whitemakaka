@@ -1,1 +1,1 @@
-# 💡 Ideas I want to share
+💡 Ideas I want to share
